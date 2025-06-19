@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Rahdiyat Olaitan Ola-Badmus
 
-🎓 **B.Sc. Microbiology Graduate**  
+🎓 **First-class B.Sc. Microbiology Graduate**  
 🔬 Aspiring **Bioinformatician** with a passion for genomics, pathogen surveillance, and infectious disease research.  
 📍 Based in **Lagos, Nigeria** 
 
